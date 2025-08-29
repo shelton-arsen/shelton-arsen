@@ -14,7 +14,7 @@
 # 📫 **Let's connect:**  
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/arseni-shaleika/)  
 
-📞 +7 (925) 846-42-80  
-📞 +375 (29) 526-86-74 (WhatsApp)  
+📞 +48 789-123-617
+📞 +375 (29) 526-86-74 (WhatsApp)
 ✉️ shelton.arsen@gmail.com
 ---
